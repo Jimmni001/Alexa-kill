@@ -70,6 +70,10 @@ Now you have all the links what you need to do the tutorial.
 
 Feel free to comment...
 
+Here is the Full Video:
+https://www.youtube.com/watch?v=Dnbca4hAjuw&feature=youtu.be
+
+
 
 
 
